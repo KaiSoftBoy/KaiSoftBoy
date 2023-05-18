@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Kai
+- 👀 I’m interested in Omori
+- 🌱 I’m currently learning how to speak English 
+- 💞️ I’m looking to collaborate on nothing at the moment
+- 📫 How to reach me discord
